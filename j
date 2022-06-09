@@ -1,0 +1,1 @@
+para lo siguente clase habra mas pajaros y las animaciones seran mejores
